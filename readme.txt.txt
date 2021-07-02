@@ -1,1 +1,0 @@
-seetandon sa-ardarwut
